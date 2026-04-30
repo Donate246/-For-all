@@ -2,4 +2,5 @@
 It is an important step to start my dev journey. I would love everyone to support me as much as they can.
 Looking at my first repo gives joy. Let's build something real
 Life as a dev is amazing, honestly
-Currently the market is not giving what we want
+Currently, the market is not giving what we want
+Lovely day in Vancouver, Canada
