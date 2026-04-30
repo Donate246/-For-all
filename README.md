@@ -5,3 +5,4 @@ Life as a dev is amazing, honestly
 Currently, the market is not giving us what we want
 Lovely day in Vancouver, Canada
 Happy new month, everyone
+Great is the moment coming soon
