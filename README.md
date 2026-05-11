@@ -19,3 +19,4 @@ Builders lounge
 Keep going guys
 Trying to navigate my way
 Traveling soon to Canada
+Allowing newbies to thrive in this space
