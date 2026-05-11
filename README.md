@@ -18,3 +18,4 @@ Sending love to all my viewers
 Builders lounge
 Keep going guys
 Trying to navigate my way
+Traveling soon to Canada
