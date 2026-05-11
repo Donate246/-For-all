@@ -24,4 +24,5 @@ Always believe in your craft
 Expecting some challenges on the way
 Quick improvement all day
 But are you born again?
-I am currently looking/researching a project called DACC
+I am currently looking at/researching a project called DACC
+The word of God works
