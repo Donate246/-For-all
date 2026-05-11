@@ -13,3 +13,4 @@ Looking great
 Base is building
 Here for the growth
 Bae teasing
+Thinking of starting some businesses
