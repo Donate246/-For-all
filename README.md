@@ -14,3 +14,4 @@ Base is building
 Here for the growth
 Bae teasing
 Thinking of starting some businesses
+Sending love to all my viewers
