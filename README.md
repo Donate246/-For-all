@@ -46,5 +46,6 @@ Apply in person or online
 Experience of life
 Generous people
 Let's keep pushing
-Uncle pee keep going
-Thank you guys
+Uncle Pee, keep going
+Thank you, guys
+Hey welcome
