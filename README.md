@@ -35,4 +35,5 @@ Who wins the World Cup
 Loving the game here
 Checking on you all guys
 Incredible day here
-We all gonna make it
+We're all gonna make it
+Life is worth it
