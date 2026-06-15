@@ -43,4 +43,5 @@ Nice move
 Flash day
 I need builders
 Apply in person or online
-Experience about life
+Experience of life
+Generous people
